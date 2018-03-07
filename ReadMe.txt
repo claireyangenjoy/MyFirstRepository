@@ -1,1 +1,2 @@
 This message is to notice you that I am leaving my position.
+Thanks!
